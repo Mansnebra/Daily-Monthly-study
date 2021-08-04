@@ -13,3 +13,8 @@
   +Filing untuk gass setelah ramas kopling di tikungan  dan perempatan mau saat start motor.
   +Mengover gigi kedepan pada saat jalan lurus.
   +Jangan mengover gigi kedepan pada saat tikungan.
+
+3. +Kegiatan Doa bersama 
+   +Contoh pokok Doa
+   +Mengorganisir suatu kelompok
+   +Contoh penelahan Alkitab
