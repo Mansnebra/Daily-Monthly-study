@@ -59,3 +59,10 @@ abstrak, alamiah, nonobjektif, ornamental, ataupun struktural.
 - Hal yang perlu diperhatikan dalam komposisi: keseimbangan 
 (balance), irama (rhythm)/gerakan, perbandingan/proporsi 
 (proportional), kesatuan (unity)/total organization/harmony
+
+5.Langkah-langkah membuat Webinar
+  *Menentukan Konsep dan tema yg tepat
+  *Narasumber yang berkopeten
+  *Menentukan Prosedur Webinar dan susunan Acara
+  *Tentukan Waktu yang tepat
+  *Melakukan Promosih
