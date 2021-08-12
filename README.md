@@ -66,3 +66,5 @@ abstrak, alamiah, nonobjektif, ornamental, ataupun struktural.
   *Menentukan Prosedur Webinar dan susunan Acara
   *Tentukan Waktu yang tepat
   *Melakukan Promosih
+
+6. P.A : 58
